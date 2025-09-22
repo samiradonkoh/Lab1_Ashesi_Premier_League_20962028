@@ -1,1 +1,3 @@
-# Lab1_Ashesi_Premier_League_20962028
+Samira Ewura-Esi Donkoh
+20962028
+Cohort B
